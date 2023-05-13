@@ -1,0 +1,1 @@
+# unearting-the-environmental-impact-of-human-activity-A-global-co2-emmision-analysisl
